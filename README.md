@@ -1,3 +1,3 @@
-## Hi there 👋
+## Welcome!
 
-This is where I play around with Copilot until the bot stops talking to me for the rest of the month.
+This is where I use my monthly copilot allowance, one game at a time.
